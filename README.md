@@ -1,1 +1,0 @@
-# mamadcamzis.github.io
